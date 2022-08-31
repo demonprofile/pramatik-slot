@@ -3,9 +3,9 @@
 <details open><summary><b>Show / Hide Ads</b></summary>
 
 # [Kumpulan Trik Bet Kecil Pramatik Slot No 1](https://atom.io/packages/pramatik-slot)
-## :thumbsup: klik untuk [Daftar Sekarang](https://agentotoplay.net/) :green_heart: <<< 
-## :top: klik untuk [Mulai Deposit Sekarang](https://agentotoplay.net/register/) :heavy_check_mark: <<< 
-## :gift: klik untuk [Daftar Sekarang](https://agentotoplay.net/register/) :100: <<< 
+## :thumbsup: klik untuk [Daftar Sekarang](https://golinkurl.github.io/) :green_heart: <<< 
+## :top: klik untuk [Mulai Deposit Sekarang](https://golinkurl.github.io/register/) :heavy_check_mark: <<< 
+## :gift: klik untuk [Daftar Sekarang](https://golinkurl.github.io/register/) :100: <<< 
 
 ## Informasi Situs /Server Kami : 
 
